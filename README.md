@@ -1,1 +1,1 @@
-Check out Sujit Khatiwada's portfolio.
+Check out Sujit Khatiwada's Portfolio.
